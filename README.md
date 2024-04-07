@@ -1,2 +1,1 @@
 Efe Torunoglu
-12
